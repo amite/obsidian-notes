@@ -1,0 +1,4 @@
+#dialectics #narrative #ideology
+
+
+
